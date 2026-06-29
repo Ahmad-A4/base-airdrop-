@@ -13,3 +13,4 @@ getting hyped up for base airdrop
 ---
 آخرین آپدیت: 2026/06/29
 getting discord roles now
+بریم بگیریم
