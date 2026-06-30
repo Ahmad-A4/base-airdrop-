@@ -1,5 +1,5 @@
 # base-airdrop-
-getting hyped up for base airdrop ....ww
+getting hyped up for base airdrop ......
 
 # لاگ روزانه Base Builder
 
