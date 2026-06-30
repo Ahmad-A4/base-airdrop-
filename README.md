@@ -4,6 +4,8 @@ getting hyped up for base airdrop
 getting hyped up for base airdrop 
 # base-airdrop-
 getting hyped up for base airdrop 
+# base-airdrop-
+getting hyped up for base airdrop 
 # لاگ روزانه Base Builder
 
 **هدف:** ۱۰۰ Commit برای Guild Base
